@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mwojd
+- 👀 I’m interested in
+- -coding
+- 🌱 I’m currently learning
+- -web dev
+- 📫 How to reach me 
+-   -Discord: Discord#1771

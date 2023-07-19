@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning
 - -web dev
 - 📫 How to reach me 
--   -Discord: teev#9322
+-   -Discord: te3v
